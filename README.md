@@ -1,1 +1,1 @@
-# 2F_informatyka
+# 2F_Informatyka
